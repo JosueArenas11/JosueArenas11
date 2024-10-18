@@ -1,3 +1,7 @@
+
+![cooltext468542389268672](https://github.com/user-attachments/assets/0b89cc44-cab4-4a7c-80cb-d7fc0480e830)
+
+
 👤 Profile: @JosueArenas11
 
 🏁 Interests:
